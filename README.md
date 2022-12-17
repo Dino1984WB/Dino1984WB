@@ -1,6 +1,1 @@
-i am the dinosaur 1984!
-
-hear my keyboard click
-
-
-
+I am not a dinosaur in real life.
